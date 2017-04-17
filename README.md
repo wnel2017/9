@@ -36,12 +36,6 @@
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&current=6:1&from=wnel">【特稿】九评问世13年 中国巨变在即</a><br/>
   </tr>
   <tr>
-        <td align=center>
-微信如果提示：停止访问该网页<br/>
-请点击右上角，选择浏览器打开<br/>
-如打开慢，缓冲稍等或刷新<br/>
-  </tr>
-  <tr>
       <td align=left>
   * 参考资料：<br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年人心明</a><br/>
@@ -51,7 +45,7 @@
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816602&from=wnel">马克思的成魔之路</a><br/>
 </tr>
   <tr>
-    <td align=left>
+    <td align=center>
 微信如果提示：停止访问该网页<br/>
 请点击右上角，选择浏览器打开<br/>
 如打开慢，缓冲稍等或刷新<br/>
