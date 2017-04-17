@@ -17,7 +17,7 @@
      </tr>
   <tr>
     <td align=left>
-    ◆主要内容<br/>
+◆主要内容<br/>
 【一】评共产党是什么<br/>
 【二】评中国共产党是怎样起家的<br/>
 【三】评中国共产党的暴政<br/>
@@ -29,21 +29,19 @@
 【九】评中国共产党的流氓本性<br/>
   </tr>
   <tr>
-  <td align=left>
-微信如果提示：停止访问该网页<br/>
-请点击右上角，选择浏览器打开<br/>
-如打开慢，缓冲稍等或刷新<br/>
+<td align=left>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&current=3:1&from=wnel">《九评》系列插图 看清中国人苦难根源</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&current=4:1&from=wnel">《九评》13周年 近2亿7千万人三退</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&current=5:1&from=wnel">《九评》著名学者：当今乱世的解药</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&current=6:1&from=wnel">【特稿】九评问世13年 中国巨变在即</a><br/>
   </tr>
   <tr>
-      <td align=left>
-  * 参考资料：<br/>
+        <td align=center>
 微信如果提示：停止访问该网页<br/>
 请点击右上角，选择浏览器打开<br/>
 如打开慢，缓冲稍等或刷新<br/>
+      <td align=left>
+  * 参考资料：<br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年人心明</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FMTDWH.mp4&from=wnel">漫谈党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?1D%2FJTDWH&from=wnel">解体党文化</a><br/>
