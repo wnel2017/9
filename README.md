@@ -6,7 +6,7 @@
   <td align=center>
 ◆◆◆九评共产党◆◆◆<br/>
 看懂当下，看清未来<br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">请点击在线浏览</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">❤❤请点击在线浏览❤❤</a><br/>
    </tr>
   <tr>
       <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
@@ -37,7 +37,7 @@
   </tr>
   <tr>
       <td align=left>
-  * 参考资料：<br/>
+◆全球热门专辑<br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年人心明</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FMTDWH.mp4&from=wnel">漫谈党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?1D%2FJTDWH&from=wnel">解体党文化</a><br/>
@@ -45,17 +45,14 @@
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816602&from=wnel">马克思的成魔之路</a><br/>
 </tr>
   <tr>
-    <td align=center>
+<td align=center>
+全球近3亿人的幸运选择，珍贵机缘<br/>
+为你而来，这一次您千万别再错过～<br/>
+看完九评，<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx?from=wnel-3T">请点击在线快速办理</a><br/>
 微信如果提示：停止访问该网页<br/>
 请点击右上角，选择浏览器打开<br/>
 苹果用户复制到自带浏览器打开<br/>
 如打开慢，缓冲稍等或刷新<br/>
-  </tr>
-  <tr>
-      <td align=center>
-看完九评，<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx?from=wnel-3T">请点击在线快速办理</a><br/>
-全球近3亿人的幸运选择，珍贵机缘<br/>
-为你而来，这一次您千万别再错过～<br/>
   </tr>
   <tr>
 <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
