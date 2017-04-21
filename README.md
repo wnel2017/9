@@ -32,6 +32,12 @@
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&current=6:1&from=wnel">【特稿】九评问世13年 中国巨变在即</a><br/>
   </tr>
   <tr>
+   <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3T.jpg" /></td>
+  </tr>
+  <tr>
+   <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3T1.jpg" /></td>
+  </tr>
+  <tr>
 <td align=center>
 全球近3亿人的幸运选择，珍贵机缘<br/>
 看完九评，这一次您千万别再错过～<br/>
