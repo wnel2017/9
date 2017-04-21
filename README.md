@@ -48,6 +48,9 @@
 如打开慢，缓冲稍等或刷新<br/>
   </tr>
   <tr>
+   <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/3t.jpg"/></td><br/>
+  </tr>
+  <tr>
       <td align=left>
 ◆全球热门专辑<br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年人心明</a><br/>
