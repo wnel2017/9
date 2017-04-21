@@ -39,7 +39,15 @@
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?1D%2FJTDWH&from=wnel">解体党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FBNGCD&from=wnel">百年共产党</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816602&from=wnel">马克思的成魔之路</a><br/>
-</tr>
+  </tr>
+  <tr>
+<td align=left>◆百年共产党真相◆特稿<br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F3%2F6%2Fn8879818.htm&from=wnel">◆《大纪元时报》特刊：共产党百年真相</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F4%2F20%2Fn9055656.htm&from=wnel">◆【特稿】迫害法轮功遭报应实录</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F140%2Fgb%2F15%2F11%2F2%2Fn4564327.htm&from=wnel">◆【特稿】感情代替不了理智</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F2%2F9%2Fn8792816.htm&from=wnel">◆【特稿】共产主义不是出路而是绝路</a><br/>
+如打开慢，缓冲稍等或刷新<br/>
+  </tr>
   <tr>
 <td align=center>
 全球近3亿人的幸运选择，珍贵机缘<br/>
