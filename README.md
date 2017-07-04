@@ -108,11 +108,6 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate6.jpg" /></td>
   </tr>
   <tr>
-<table>
-  <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate6.jpg" /></td>
-  </tr>
-  <tr>
 <td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>
 推荐谷歌/火狐浏览器，国产浏览器易干扰<br/>
 <a href="https://chrome.cn.uptodown.com/android">谷歌安卓版、 </a>
